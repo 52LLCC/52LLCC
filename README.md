@@ -8,6 +8,9 @@ Meu nome é **Livia**
 
   ### Você emtra em contato comigo 📬
 
-  0000111957475sp@aluno.educacao.sp.gov.br
+  0000111957475sp@al.educacao.sp.gov.br
 
-  
+  @rzcosta._
+
+![](https://media1.tenor.com/m/QidN4N3AygwAAAAC/sei-de-nada-n%C3%A3o-sei.gif)
+
